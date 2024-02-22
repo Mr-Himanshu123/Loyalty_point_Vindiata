@@ -1,0 +1,1 @@
+# Loyalty_point_Vindiata
